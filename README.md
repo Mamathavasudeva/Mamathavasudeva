@@ -1,7 +1,7 @@
 - Hi 👋,  I’m @Mamathakrishna
 Passionate Recruiter with particular focus on IT Recruitment. Having a diverse mix of experiences from staffing company to a tech startup (AI), 
 I found my passion in technology and the possibilities it creates to build a robust talent function within the organization.
-I have had hands on experience in various aspects of HR like :- Recruitment , Sourcing, Recruitment co-ordination,
+I have hands on experience in various aspects of HR like :- Recruitment , Sourcing, Recruitment co-ordination,
 Performance Management, employee engagement , Payroll Preparation, HR Operation & Administration.
 
 - 👀 I’m Currently working at RPASoft.ai
